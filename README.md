@@ -1,1 +1,0 @@
-# metopt_pijavski
